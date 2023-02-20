@@ -10,3 +10,5 @@ Grupo 3: Antonio Gines Buendia Lopez (Antoniogins)
 Grupo 4: Adelina Mercader Rubio
 
 Grupo 5: Javier García García
+
+Grupo 6: Juan José Miras Escarabajal
