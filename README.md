@@ -11,4 +11,6 @@ Grupo 4: Adelina Mercader Rubio
 
 Grupo 5: Javier García García
 
-Grupo 6: Juan José Miras Escarabajal
+Grupo 6: Evelio Martínez Navarro (Kune08)
+
+Grupo 7: Juan José Miras Escarabajal
